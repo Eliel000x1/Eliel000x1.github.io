@@ -1,0 +1,105 @@
+# O INFERNO NÃO É COMO VOCÊ PENSA
+Esqueça todas as bobagens que lhe contavam sobre o inferno quando você era criança.
+Aqui não há labaredas saindo do chão.
+Não existem demônios segurando lanças ou garfos pontudos.
+Eu não sinto cheiro de enxofre no ar e não ando pelado por aí, sendo chicoteado o tempo todo por seres disformes e sem vida nos olhos.
+Não tenho correntes amarrando meus pés a bolas de ferro ou algo parecido.
+Vou tentar descrever o meu inferno.
+Ao primeiro olhar, um cenário comum a todos nós e que em nada se parece com aquela fantasiosa imagem presente nas historinhas que sua tia beata contava, sempre que você fazia algo que pudesse ser considerado pecado.
+O meu inferno começa aqui nessa esquina movimentada de Belo Horizonte, onde todos os dias transitam centenas, talvez milhares de carros e pessoas apressadas sem tempo para sequer reparar na arquitetura variada desse ponto da cidade.
+Aqui nessa banca de revista eu sempre paro para ler as notícias estampadas nas primeiras páginas dos jornais, mas nunca comprei sequer uma edição.
+Já as revistas, essas já me interessaram no passado, mas hoje já não me atraem mais.
+São quase todas iguais e sem nenhuma novidade.
+O senhor que toma conta da banca, está sempre com a mesma boina, a mesma cara fechada para mim e sempre fazendo palavras cruzadas.
+Acho que ele não vai muito com a minha cara, ou talvez tenha raiva porque nunca comprei nada.
+Depois de olhar o resultado dos jogos de domingo, olho em direção ao posto policial alguns metros à frente de onde estou.
+Um policial está sentado olhando o movimento do outro lado da rua, onde uma pequena multidão se aglomera para ver mais um "encantador de cobras", ou seria mais correto dizer: mais um "enganador de pessoas"? Próximo ao posto policial, num ponto de ônibus, vejo um amigo.
+Ele acena para mim e vou ao seu encontro.
+Um aperto de mão disfarça a passagem de um bilhete onde está escrito: "Marea azul escuro, parado em frente à farmácia".
+Depois de algumas perguntas sobre a família, amigos e o jogo de ontem, me despeço e sigo em direção ao banco, passando em frente ao Marea.
+Os vidros negros não me permitem saber quem estava lá dentro, mas noto o motor ligado.
+As respostas dadas pelo amigo no ponto do ônibus estavam carregadas de códigos e dicas de como deveríamos proceder em seguida.
+Um mendigo me pede uma esmola.
+Me abaixo e lhe dou algo mais precioso que uma moeda.
+Um aviso para que saia do local, para o seu próprio bem.
+Confesso que não sei ao certo se ele segue meu conselho ou se fica parado na porta do banco, pois depois disso, tudo acontece rapidamente.
+Lá dentro, os gritos, o segurança que tenta sacar a sua arma, mas é atingido na cabeça por uma bala de AR-15, uma mulher que desmaia ao ver os miolos do homem no chão e o gerente do banco sendo espancado por um dos meus comparsas.
+Tiros para o alto tentam fazer com que as pessoas não tentem atrapalhar nossa fuga, mas a movimentação dentro da agência chama a atenção de quem está fora, inclusive a de policiais que param uma viatura em frente ao posto.
+Nosso motorista se apavora e começa a troca de tiros.
+Poucos segundos depois, ele cai ao lado do carro.
+Depois do motorista, vejo meu melhor amigo tombar ao meu lado.
+Seu peito sangra, cravado por vários estilhaços de uma calibre 12.
+Nessa hora vejo flashes de minha infância, quando brincava com meu irmão de "polícia ladrão".
+Ele sempre me matava, não importando se era a polícia ou o ladrão.
+Eu sempre perdia na brincadeira e agora vejo um amigo caído no chão.
+Ele é o ladrão.
+Mas eu também sou.
+Num reflexo, aponto minha arma para o policial perto do Marea e acerto-lhe o joelho, fazendo-o cair imediatamente.
+A única coisa que eu posso fazer é correr para o carro e é exatamente o que eu faço.
+Agora estou aqui, correndo pela cidade feito um louco.
+Não me resta outra saída.
+Duas viaturas me perseguem, mas estou indo relativamente bem.
+Mais um pouco e saio do centro da cidade.
+Se eu pegar a estrada elas não terão chances de me alcançar.
+Não com esse carro.
+Preparamos seu motor durante toda a noite e nada pode acompanha-lo.
+Estou bem.
+Estou seguro do que estou fazendo e que tudo vai dar certo.
+Pelo menos para mim, já que dois amigos já não tiveram essa sorte.
+Olho no retrovisor e vejo as viaturas ficando para trás.
+Não consigo evitar um sorriso de satisfação no rosto.
+Mas nesse momento, tudo parece ficar congelado, ou pelo menos muito lento.
+Não escuto mais o som do motor.
+Não escuto as sirenes.
+Sinto um frio na espinha e meus olhos arregalam diante daquele menino pedindo esmolas na rua.
+É apenas um menino, mas seu rosto...
+Seu rosto é demoníaco.
+Olhos muito brilhantes e dentes afiados.
+Não consigo tirar os olhos dele até que passo ao seu lado.
+Ele me encara e escuto claramente uma voz dentro da minha cabeça: "Você nunca mais sairá daqui".
+Ao voltar o rosto para frente, vejo a figura de meu pai me dando a mão para atravessar a rua.
+Estou com um sorvete enorme nas mãos.
+Ele sorri, abaixa e me dá um beijo.
+A traseira do caminhão surge diante do carro tão rapidamente quanto a imagem de minha mãe aparece em minha mente.
+Ela tem nas mãos um bolo de aniversário.
+Meus 15 anos.
+Eu era o garoto mais querido da família.
+Vejo o capô do Marea encontrando o para-choque do caminhão.
+Os primeiros centímetros de aço se retorcendo, dobrando como papel, ao mesmo tempo em que me vejo sorrindo para meu irmão no dia em que me formei.
+Ele me abraçou e disse que eu era o melhor irmão do mundo e que estava muito orgulhoso de mim.
+Eu era um bom filho.
+Um bom irmão.
+Um excelente aluno.
+Meus olhos arregalados agora estão vendo o para-brisa chegando mais perto.
+Meu peito bate contra o volante.
+Minha namorada...
+Linda.
+Linda como nunca vi outra igual.
+Ela estava feliz.
+Sorria para mim no dia em que a pedi em casamento.
+Fizemos planos, começamos a guardar dinheiro para o futuro.
+Ela me amava demais...
+Mas não suportou ficar ao meu lado quando eu comecei a mudar.
+Os estilhaços de vidros penetram em um dos meus olhos.
+Sinto o sangue escorrer quando me lembro do meu primeiro assalto.
+Eu estava nervoso e atirei no olho do rapaz que estava pegando o dinheiro na gaveta.
+Achei que ele estava pegando uma arma, mas ele não queria me fazer mal.
+E eu não queria mata-lo.
+Minha cabeça volta com violência para trás, com a pancada do para-choque do caminhão na minha testa e meu braço é rasgado pela ferragem da porta, que se dobra com o impacto.
+Lembro do dia em que a polícia deu batida na casa de uma vadia com quem comecei a sair depois que minha namorada me deixou.
+Eles entraram bem na hora que eu estava aplicando.
+A agulha rasgou minha veia e tive que ser levado para o hospital.
+Minhas pernas estão sendo esmagadas pelo motor do carro e vejo meu pai chorando quando me expulsou de casa.
+Minha mãe dopada com tranquilizantes enquanto eu espancava o irmão que tanto me amava.
+Eu só queria um pouco de dinheiro.
+Eu precisava comprar mais.
+O para-choque do caminhão virou uma lâmina gigante e meu pescoço está prestes a ser cortado.
+Estou vendo como tudo começou.
+Foi naquela festa na casa de um amigo.
+Eu estava dançando, me divertindo sem precisar de mais nada para tornar a noite melhor, mas a turma insistiu e eu acabei experimentando pela primeira vez.
+De relance, consigo ver no retrovisor da porta, retorcido e virado para o meu lado, meu pescoço pendendo para o lado.
+Minha vida se vai.
+Na verdade, ela se foi muito antes desse dia.
+E agora vivo aqui nesse inferno...
+Aliás, vou tentar descrever como é meu inferno.
+Aqui nessa banca de revista eu sempre paro para ler as notícias estampadas nas primeiras páginas dos jornais, mas nunca comprei sequer uma edição...
