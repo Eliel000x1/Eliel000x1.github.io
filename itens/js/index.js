@@ -198,7 +198,7 @@ const gamma = ( text ) => {
 	}
 }
 
-const article = alpha( 'article', { creepas } )
+const article = alpha( 'article', creepas )
 document.body.append( article )
 
 
