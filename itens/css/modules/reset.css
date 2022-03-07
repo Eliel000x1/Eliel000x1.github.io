@@ -1,1 +1,11 @@
-
+* { all: unset; }
+* {
+	box-sizing: border-box;
+}
+:root, html, body {
+	display: block;
+	line-height: 1;
+}
+head {
+	display: none;
+}
